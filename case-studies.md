@@ -1,4 +1,4 @@
-## ONE MORE LIGHT PRAGUE - Memorial concert visual
+## ONE MORE LIGHT PRAGUE - Live show visual
 
 I designed a visual identity for a Prague memorial for the late Chester Bennington back in 2017. It was an important project for me because 
 of my relationship to the music and the band. I had the opportunity to work on the memorial show for him and the fans. We really wanted to 
