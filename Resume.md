@@ -19,8 +19,8 @@ In this studio I’ve developed my game and learned a lot of useful skills. My w
 
 ### EDUCATION
 
-#### VŠKK – BACHELOR, 2018-2021
-#### SOŠ MULTIMEDIÁLNÍ A PROPAGAČNÍ TVORBY – HIGH SCHOOL, 2012-2016
+##### VŠKK – BACHELOR, 2018-2021
+##### SOŠ MULTIMEDIÁLNÍ A PROPAGAČNÍ TVORBY – HIGH SCHOOL, 2012-2016
 
 ### QUALIFICATIONS
 This depends on the actual job that I'm aplying for.
