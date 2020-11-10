@@ -29,8 +29,11 @@ This depends on the actual job that I'm aplying for.
 Contact kornel.zuchewicz@ab-inbev.com.com. - Kornel  Zuchewicz 
 
 ### CONTACTS
+
 ADRESS: xxxx
+
 PHONE: xxxx
+
 EMAIL: edward.kelnar@gmail.com
 
 LINKEDIN: xxxx
