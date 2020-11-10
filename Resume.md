@@ -26,11 +26,11 @@ In this studio I’ve developed my game and learned a lot of useful skills. My w
 This depends on the actual job that I'm aplying for.
 
 ### REFERENCE
-I am thrilled to recommend Edward. I had the pleasure of working as Edwards  supervisor when he was employed here as a returnable material specialist.  Responsible, punctual and extremely bright and I absolutely endorse his qualification  and his skill set. He could get very excited for the job and when he did he gave it 110%.  I was continuously impressed by the knowledge he brought to the table and his  dedication to staying on top. Edward combines sharp analysis skills with a strong  intuition, and I always knew I could rely on him to meet deadlines and exceed our  expectations. During his time with us, he achieved numerous accomplishments, from  increasing our social media engagement by 20%, to lowering time of our reports by  80%. 
-While Edwards' professional acumen was immensely valuable to AB-InBev, he was also  a wonderful team player. Optimistic, engaging and easy to get along with, Edward was  a true joy to have in the office and fostered many positive relationships within our  department.  
-With that said, I am highly confident in my recommendation and believe that Edward  would be a great fit. If you would like to speak further about my experience working  with Edward, please email me at kornel.zuchewicz@ab-inbev.com.com. - Kornel  Zuchewicz 
+Contact kornel.zuchewicz@ab-inbev.com.com. - Kornel  Zuchewicz 
 
 ### CONTACTS
-ADRESS:
-PHONE:
+ADRESS: xxxx
+PHONE: xxxx
 EMAIL: edward.kelnar@gmail.com
+
+LINKEDIN: xxxx
